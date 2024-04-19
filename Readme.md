@@ -1,4 +1,5 @@
 ## Names of Enugu Altschool SME students.
 
 - Nwobodo Ekene Leonard
--Mamah Kingsley Chukwuebuka
+- Mamah Kingsley Chukwuebuka
+- Nnajifor Adanna Peace
