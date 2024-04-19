@@ -2,4 +2,4 @@
 
 - Nwobodo Ekene Leonard
 - Nnajifor Adanna Peace
-- Nwatu Nelson Nze-Ezue
+- Nwatu Nelson Nze-Ezue.
